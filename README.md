@@ -1,2 +1,0 @@
-# Anshu-Roy
-For news
